@@ -1,4 +1,4 @@
-[@gamblersi](https://github.com/gamblersi) : as ponytowns awesomeness chance! 
+[@gamblersi](https://github.com/gamblersi) : as ponytowns awesomeness's chance! 
 
 <!--
 **pt-of-awesomeness/pt-of-awesomeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -20,3 +20,9 @@
 
 
 [@pupfies ](https://github.com/pupfies) : as ponytowns awesomeness's wifies! 
+
+
+[@Xaplastcore ](https://github.com/Xaplastcore) : as ponytowns awesomeness's orion pax! (transformers) 
+
+
+[@CosmoThePastryy ](https://github.com/CosmoThePastryy) : as ponytowns awesomeness's cosmo! 

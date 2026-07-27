@@ -11,3 +11,6 @@
 
 
 [@gaylukas ](https://github.com/gaylukas) : as ponytowns awesomeness's lukas (mcsm)! 
+
+
+[@lovingl3tters ](https://github.com/lovingl3tters ) : as ponytowns awesomeness's caporegime! 

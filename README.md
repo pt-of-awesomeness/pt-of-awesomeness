@@ -16,7 +16,7 @@
 [@lovingl3tters ](https://github.com/lovingl3tters ) : as ponytowns awesomeness's caporegime! 
 
 
-[@theultimatekohamster ](https://github.com/theultimatekohamster) : as ponytowns awesomeness's itrapped! 
+[@itrap-2245](https://github.com/itrap-2245) : as ponytowns awesomeness's itrapped! 
 
 
 [@pupfies ](https://github.com/pupfies) : as ponytowns awesomeness's wifies! 

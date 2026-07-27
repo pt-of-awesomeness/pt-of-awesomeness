@@ -26,3 +26,7 @@
 
 
 [@CosmoThePastryy ](https://github.com/CosmoThePastryy) : as ponytowns awesomeness's cosmo! 
+
+
+[@wishlizx ](https://github.com/wishlizx) : as ponytowns awesomeness's 
+ben drowned ! 

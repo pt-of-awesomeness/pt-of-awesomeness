@@ -65,3 +65,9 @@ ben drowned !
 
 
 [@UNDYINGREGRET ](https://github.com/UNDYINGREGRET) : IS ponytowns awesomeness's TWO TIME! 
+
+
+[@coal-irl  ](https://github.com/coal-irl ) : IS ponytowns awesomeness's coal the rock
+
+
+[@01yaoimaster ](https://github.com/01yaoimaster) : IS ponytowns awesomeness's npc (from deltarune)

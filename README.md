@@ -67,7 +67,25 @@ ben drowned !
 [@UNDYINGREGRET ](https://github.com/UNDYINGREGRET) : IS ponytowns awesomeness's TWO TIME! 
 
 
-[@coal-irl  ](https://github.com/coal-irl ) : IS ponytowns awesomeness's coal the rock
+[@coal-irl  ](https://github.com/coal-irl ) : IS ponytowns awesomeness's coal the rock! 
 
 
-[@01yaoimaster ](https://github.com/01yaoimaster) : IS ponytowns awesomeness's npc (from deltarune)
+[@01yaoimaster ](https://github.com/01yaoimaster) : IS ponytowns awesomeness's npc (from deltarune)! 
+
+
+[@KALININGRAD-OBLAST ](https://github.com/KALININGRAD-OBLAST) : IS ponytowns awesomeness's prussia! 
+
+
+[@NERDPROJECT ](https://github.com/NERDPROJECT) : IS ponytowns awesomeness's dean winchester! (supernatural) 
+
+
+[@spokeisheres ](https://github.com/spokeisheres) : IS ponytowns awesomeness's spoke!
+
+
+[@denguemon ](https://github.com/denguemon) : IS ponytowns awesomeness's meas saman!
+
+
+[@verjty ](https://github.com/verjty) : IS ponytowns awesomeness's verity!
+
+
+[@HYP3RBREAK ](https://github.com/HYP3RBREAK) : IS ponytowns awesomeness's mangle (from fnaf)! 

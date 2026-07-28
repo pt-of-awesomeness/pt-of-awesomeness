@@ -55,4 +55,7 @@ ben drowned !
 [@Akpdox ](https://github.com/Akpdox) : IS ponytowns awesomeness's hawks!
 
 
-[@01-800-papu ](https://github.com/01-800-papu) : IS ponytowns awesomeness's aldo_geo! 
+[@01-800-papu ](https://github.com/01-800-papu) : IS ponytowns awesomeness's aldo_geo!
+
+
+[@AngeIogIst ](https://github.com/AngeIogIst) : IS ponytowns awesomeness's 1x!

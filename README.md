@@ -35,3 +35,24 @@ ben drowned !
 
 
 [@zomsua ](https://github.com/zomsua) : IS ponytowns awesomeness's planetlord! 
+
+
+[@SecretaryyKim ](https://github.com/SecretaryyKim) : IS ponytowns awesomeness's 007n7!
+
+
+[@Blame-John ](https://github.com/Blame-John) : IS ponytowns awesomeness's shedletsky!
+
+
+[@totaldramas ](https://github.com/totaldramas) : IS ponytowns awesomeness's noah (tdi)! 
+
+
+[@Canto8 ](https://github.com/Canto8) : IS ponytowns awesomeness's yesod (lobotomy corps) 
+
+
+[@beauty-clown ](https://github.com/beauty-clown) : IS ponytowns awesomeness's TRICKY!
+
+
+[@Akpdox ](https://github.com/Akpdox) : IS ponytowns awesomeness's hawks!
+
+
+[@01-800-papu ](https://github.com/01-800-papu) : IS ponytowns awesomeness's aldo_geo! 

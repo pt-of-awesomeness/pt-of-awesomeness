@@ -59,3 +59,9 @@ ben drowned !
 
 
 [@AngeIogIst ](https://github.com/AngeIogIst) : IS ponytowns awesomeness's 1x!
+
+
+[@sw33tsug4rcookie ](https://github.com/sw33tsug4rcookie) : IS ponytowns awesomeness's ginger the cookie!
+
+
+[@UNDYINGREGRET ](https://github.com/UNDYINGREGRET) : IS ponytowns awesomeness's TWO TIME! 

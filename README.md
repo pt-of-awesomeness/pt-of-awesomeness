@@ -92,3 +92,60 @@ ben drowned !
 
 
 [@stagedread ](https://github.com/stagedread) : IS ponytowns awesomeness's branzycraft! 
+
+
+[@evbomc ](https://github.com/evbomc) : IS ponytowns awesomeness's evbo!
+
+
+[@kiwiconicc ](https://github.com/kiwiconicc) : IS ponytowns awesomeness's saiki kusuo!
+
+
+[@planetlords ](https://github.com/planetlords) : IS ponytowns awesomeness's mapicc!
+
+
+[@angeloffriday ](https://github.com/angeloffriday) : IS ponytowns awesomeness's travis phelps (sally face)
+
+
+[@sorbetflakes ](https://github.com/sorbetflakes) : IS ponytowns awesomeness's cuphead!
+
+
+[@5poke ](https://github.com/5poke) : IS ponytowns awesomeness's Wemmbu!
+
+
+[@5lanetlord ](https://github.com/5lanetlord) : IS ponytowns awesomeness's Eggchan!
+
+
+[@2099s ](https://github.com/2099s) : IS ponytowns awesomeness's Miguel OHara!
+
+
+[@veloury ](https://github.com/veloury) : IS ponytowns awesomeness's judeloww!
+
+
+[@aphliechtenstein ](https://github.com/aphliechtenstein) : IS ponytowns biggest awesomeness's Liechtenstein from hetalia!
+
+
+[@pupkang ](https://github.com/pupkang) : IS ponytowns awesomeness's Paul McCartney!
+
+
+[@princesszam ](https://github.com/princesszam) : IS ponytowns awesomeness's princezam
+
+
+[@conexlonn ](https://github.com/conexlonn) : IS ponytowns awesomeness's sharpness!
+
+
+[@piehiker ](https://github.com/piehiker) : IS ponytowns awesomeness's ze! (AReGect minecraft ARG) 
+
+
+[@yvoisen ](https://github.com/yvoisen) : IS ponytowns awesomeness's regect! (AReGect minecraft ARG)
+
+
+[@thefleshcurtains ](https://github.com/thefleshcurtains) : IS ponytowns awesomeness's sam winchester!
+
+
+[@therealcastiel ](https://github.com/therealcastiel) : IS ponytowns awesomeness's castiel!
+
+
+[@napnee ](https://github.com/napnee) : IS ponytowns awesomeness's sousuke mitsuba!
+
+
+[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's dust sans (sans au aka DUSTTALE) 

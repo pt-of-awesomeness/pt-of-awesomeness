@@ -118,7 +118,7 @@ ben drowned !
 [@2099s ](https://github.com/2099s) : IS ponytowns awesomeness's Miguel OHara!
 
 
-[@virtusimperium ](https://github.com/virtusimperium) : IS ponytowns awesomeness's mequot (from die of death) 
+[@virtusimperiums ](https://github.com/virtusimperiums) : IS ponytowns awesomeness's mequot (from die of death) 
 
 
 [@aphliechtenstein ](https://github.com/aphliechtenstein) : IS ponytowns biggest awesomeness's Liechtenstein from hetalia!

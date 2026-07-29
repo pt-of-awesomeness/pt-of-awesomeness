@@ -148,4 +148,25 @@ ben drowned !
 [@napnee ](https://github.com/napnee) : IS ponytowns awesomeness's sousuke mitsuba!
 
 
-[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's dust sans (sans au aka DUSTTALE) 
+[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's dust sans (sans au aka DUSTTALE)! 
+
+
+[@MoriouChoRadio ](https://github.com/MoriouChoRadio) : IS ponytowns awesomeness's koichi hirose (from jjba)!
+
+
+[@wireplayer ](https://github.com/wireplayer) : IS ponytowns awesomeness's badware!
+
+
+[@kniferrific ](https://github.com/kniferrific) : IS ponytowns awesomeness's craig tucker!
+
+
+[@faelightgex ](https://github.com/faelightgex) : IS ponytowns awesomeness's illuga (genshin impact)
+
+
+[@lesereine ](https://github.com/lesereine) : IS ponytowns awesomeness's shu (from arknights) !
+
+
+[@loveholicc ](https://github.com/loveholicc) : IS ponytowns awesomeness's shiratori!
+
+
+[@yubelsrevenge ](https://github.com/yubelsrevenge) : IS ponytowns awesomeness's jaden yuki (from yugioh) 

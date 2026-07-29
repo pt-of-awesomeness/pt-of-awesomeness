@@ -118,7 +118,7 @@ ben drowned !
 [@2099s ](https://github.com/2099s) : IS ponytowns awesomeness's Miguel OHara!
 
 
-[@veloury ](https://github.com/veloury) : IS ponytowns awesomeness's judeloww!
+
 
 
 [@aphliechtenstein ](https://github.com/aphliechtenstein) : IS ponytowns biggest awesomeness's Liechtenstein from hetalia!

@@ -34,7 +34,7 @@ ben drowned !
 [@bigguykoi ](https://github.com/bigguykoi) : IS ponytowns awesomeness's tony stark! (avengers) 
 
 
-[@zomsua ](https://github.com/zomsua) : IS ponytowns awesomeness's planetlord! 
+[@planetlordd ](https://github.com/planetlordd) : IS ponytowns awesomeness's planetlord! 
 
 
 [@SecretaryyKim ](https://github.com/SecretaryyKim) : IS ponytowns awesomeness's 007n7!

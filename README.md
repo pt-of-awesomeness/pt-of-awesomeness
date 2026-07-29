@@ -118,7 +118,7 @@ ben drowned !
 [@2099s ](https://github.com/2099s) : IS ponytowns awesomeness's Miguel OHara!
 
 
-
+[@virtusimperium ](https://github.com/virtusimperium) : IS ponytowns awesomeness's mequot (from die of death) 
 
 
 [@aphliechtenstein ](https://github.com/aphliechtenstein) : IS ponytowns biggest awesomeness's Liechtenstein from hetalia!
@@ -169,4 +169,37 @@ ben drowned !
 [@loveholicc ](https://github.com/loveholicc) : IS ponytowns awesomeness's shiratori!
 
 
-[@yubelsrevenge ](https://github.com/yubelsrevenge) : IS ponytowns awesomeness's jaden yuki (from yugioh) 
+[@yubelsrevenge ](https://github.com/yubelsrevenge) : IS ponytowns awesomeness's jaden yuki (from yugioh)! 
+
+
+[@1PWNn00bz ](https://github.com/1PWNn00bz) : IS ponytowns awesomeness's Infected (regretevator)! 
+
+
+[@finnwoIfhard ](https://github.com/finnwoIfhard) : IS ponytowns awesomeness's richie tozier!
+
+
+[@kaban0z ](https://github.com/kaban0z) : IS ponytowns awesomeness's asuka langley soryu!
+
+
+[@charliezahrlie ](https://github.com/charliezahrlie) : IS ponytowns awesomeness's nagito komaeda!
+
+
+[@THE-SAINT-OF-DEATH ](https://github.com/THE-SAINT-OF-DEATH) : IS ponytowns awesomeness's Jeff the killer!
+
+
+[@RAVENSEV ](https://github.com/RAVENSEV) : IS ponytowns awesomeness's sunny (from omori)!
+
+
+[@navia-caspar ](https://github.com/navia-caspar) : IS ponytowns awesomeness's navia caspar!
+
+
+[@ShellzyFossilzianz ](https://github.com/ShellzyFossilzianz) : IS ponytowns awesomeness's Three (from bfdi)
+
+
+[@DlSASTEROLOGY ](https://github.com/DlSASTEROLOGY) : IS ponytowns awesomeness's Kunigami rensuke!
+
+
+[@gfpaw ](https://github.com/gfpaw) : IS ponytowns awesomeness's cutiespace!
+
+
+[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's

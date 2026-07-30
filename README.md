@@ -202,4 +202,31 @@ ben drowned !
 [@gfpaw ](https://github.com/gfpaw) : IS ponytowns awesomeness's cutiespace!
 
 
+[@siriuzs ](https://github.com/siriuzs) : IS ponytowns awesomeness's fluttershy!
 
+
+[@mooonelle ](https://github.com/mooonelle) : IS ponytowns awesomeness's moonelle (from COS)! 
+
+
+[@spring-fever ](https://github.com/spring-fever) : IS ponytowns awesomeness's willy wonka!
+
+
+[@141ZXR ](https://github.com/141ZXR) : IS ponytowns awesomeness's soap mactavish!
+
+
+[@ShirouFubuki-IE ](https://github.com/ShirouFubuki-IE) : IS ponytowns awesomeness's Shawn Froste (Inazuma Eleven)!
+
+
+[@Nyanmare ](https://github.com/Nyanmare) : IS ponytowns awesomeness's Nyancat!
+
+
+[@SQUEVIL ](https://github.com/SQUEVIL) : IS ponytowns awesomeness's squiddo! (therealsquiddo)
+
+
+[@WhispedVanilla ](https://github.com/WhispedVanilla) : IS ponytowns awesomeness's Slingshot!
+
+
+[@yaoiliker ](https://github.com/yaoiliker) : IS ponytowns awesomeness's stan marsh!
+
+
+[@souIsiIver ](https://github.com/souIsiIver) : IS ponytowns awesomeness's silver (from pkmn) 

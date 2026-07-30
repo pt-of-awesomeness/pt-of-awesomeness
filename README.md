@@ -229,4 +229,57 @@ ben drowned !
 [@yaoiliker ](https://github.com/yaoiliker) : IS ponytowns awesomeness's stan marsh!
 
 
-[@souIsiIver ](https://github.com/souIsiIver) : IS ponytowns awesomeness's silver (from pkmn) 
+[@souIsiIver ](https://github.com/souIsiIver) : IS ponytowns awesomeness's silver (from pkmn)! 
+
+
+[@MrNovalite ](https://github.com/MrNovalite) : IS ponytowns awesomeness's astro! (dandys world)! 
+
+
+[@groxmc ](https://github.com/groxmc) : IS ponytowns awesomeness's groxling!
+
+
+[@electrifypink ](https://github.com/electrifypink) : IS ponytowns awesomeness's pursuer!
+
+
+[@70smusic ](https://github.com/70smusic) : IS ponytowns awesomeness's jack abbot!
+
+
+[@seraphlazer ](https://github.com/seraphlazer) : IS ponytowns awesomeness's hyperlaser
+
+
+[@ibeatangels ](https://github.com/ibeatangels) : IS ponytowns awesomeness's ciel phantomhive!
+
+
+[@dustinsconstellation ](https://github.com/dustinsconstellation) : IS ponytowns awesomeness's Patrick stump!
+
+
+[@Firebrandd ](https://github.com/Firebrandd) : IS ponytowns awesomeness's firebrand!
+
+
+[@dragonplays-forsaken ](https://github.com/dragonplays-forsaken) : IS ponytowns awesomeness's pest
+
+
+[@scarkisser ](https://github.com/scarkisser) : IS ponytowns awesomeness's robin (hsr)!
+
+
+[@elisxne ](https://github.com/elisxne) : IS ponytowns awesomeness's thatmob!
+
+
+[@xaden6 ](https://github.com/xaden6) : IS ponytowns awesomeness's biograft!
+
+
+[@weakflowers ](https://github.com/weakflowers) : IS ponytowns awesomeness's flowery!
+
+
+[@VArtfultrust ](https://github.com/VArtfultrust) : IS ponytowns awesomeness's parrotx2s!
+
+
+[@martycorn ](https://github.com/martycorn) : IS ponytowns awesomeness's vampire cookie!
+
+
+[@killwaree ](https://github.com/killwaree) : IS ponytowns awesomeness's doctor strange!
+
+
+[@MechanicalBurn ](https://github.com/MechanicalBurn) : IS ponytowns awesomeness's Neo Metal Sonic!
+
+

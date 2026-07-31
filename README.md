@@ -1,7 +1,7 @@
 <p align="center">welcome to ponytownawesomeness! this is made for fun and enjoyment, and it is to show the beautiful cosplay skins and recognisable githubs around ponytown + most famous ppl!! 
 <p align="center">$\tiny{\textsf{this github was inspired by @pt-walk-of-fame and @title-town!!}}$
 
-
+<p align="center">$\tiny{\textsf{this list will be in alphabetical order soon!!}}$ 
 
 
 [@gamblersi](https://github.com/gamblersi) : IS ponytowns awesomeness's chance! 
@@ -317,3 +317,15 @@ ben drowned !
 
 
 [@ENUMAELlSH ](https://github.com/ENUMAELlSH) : IS ponytowns awesomeness's Gilgamesh! 
+
+
+[@deepinkman ](https://github.com/deepinkman) : IS ponytowns awesomeness's soulless sam winchester (?)!
+
+
+[@B3RDLY ](https://github.com/B3RDLY) : IS ponytowns awesomeness's BERDLY (From deltarune)!
+
+
+[@Misteria0 ](https://github.com/Misteria0) : IS ponytowns awesomeness's Kenny McCormick!
+
+
+[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's 

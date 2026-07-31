@@ -310,3 +310,10 @@ ben drowned !
 [@yaasuhiro ](https://github.com/yaasuhiro) : IS ponytowns awesomeness's yasuhiro hagakure!
 
 
+[@vatrinyasin ](https://github.com/vatrinyasin) : IS ponytowns awesomeness's Sae Itoshi!
+
+
+[@ramudaa ](https://github.com/ramudaa) : IS ponytowns awesomeness's Ramuda Amemura!
+
+
+[@ENUMAELlSH ](https://github.com/ENUMAELlSH) : IS ponytowns awesomeness's Gilgamesh! 

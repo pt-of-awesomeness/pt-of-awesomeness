@@ -283,3 +283,30 @@ ben drowned !
 [@MechanicalBurn ](https://github.com/MechanicalBurn) : IS ponytowns awesomeness's Neo Metal Sonic!
 
 
+[@veloury ](https://github.com/veloury) : IS ponytowns awesomeness's judeloww!
+
+
+[@pyroprincess ](https://github.com/pyroprincess) : IS ponytowns awesomeness's Pulseman!
+
+
+[@mutiIator ](https://github.com/mutiIator) : IS ponytowns awesomeness's postman!
+
+
+[@travisrapidd ](https://github.com/travisrapidd) : IS ponytowns awesomeness's Travis rapid!
+
+
+[@dawnbreezze ](https://github.com/dawnbreezze) : IS ponytowns awesomeness's aoi kanzaki!
+
+
+[@mortisfication ](https://github.com/mortisfication) : IS ponytowns awesomeness's john ward (from faith: the unholy trinity)!
+
+
+[@pawpads ](https://github.com/pawpads) : IS ponytowns awesomeness's fashion roulette host! 
+
+
+[@HalfBPrince ](https://github.com/HalfBPrince) : IS ponytowns awesomeness's Severus Snape!
+
+
+[@yaasuhiro ](https://github.com/yaasuhiro) : IS ponytowns awesomeness's yasuhiro hagakure!
+
+

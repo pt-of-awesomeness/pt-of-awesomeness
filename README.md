@@ -392,3 +392,18 @@ ben drowned !
 
 
 [@L0VES1CKK ](https://github.com/L0VES1CKK) : IS ponytowns awesomeness's noob! 
+
+
+[@sebvsene ](https://github.com/sebvsene) : IS ponytowns awesomeness's Jason Todd!
+
+
+[@bunchoffriends ](https://github.com/bunchoffriends) : IS ponytowns awesomeness's anthony po!
+
+
+[@sproutseedlymain ](https://github.com/sproutseedlymain) : IS ponytowns awesomeness's sprout seedly (from dandys world)
+
+
+[@TheWeightOfYourGhost ](https://github.com/TheWeightOfYourGhost) : IS ponytowns awesomeness's Xiao Chi Cheng (from Revenged Love)
+
+
+[@realdustsans ](https://github.com/realdustsans) : IS ponytowns awesomeness's

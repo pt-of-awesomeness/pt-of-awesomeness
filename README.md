@@ -328,3 +328,67 @@ ben drowned !
 [@Misteria0 ](https://github.com/Misteria0) : IS ponytowns awesomeness's Kenny McCormick!
 
 
+[@VOXMANIA ](https://github.com/VOXMANIA) : IS ponytowns awesomeness's Vox!
+
+
+[@Nadd-nadd ](https://github.com/Nadd-nadd) : IS ponytowns awesomeness's Katsuki Bakugo!
+
+
+[@N1TEB0I ](https://github.com/N1TEB0I) : IS ponytowns awesomeness's rei ayanami!
+
+
+[@loveruffle ](https://github.com/loveruffle) : IS ponytowns awesomeness's Isagi Yoichi!
+
+
+[@ADVENTUREETIME ](https://github.com/ADVENTUREETIME) : IS ponytowns awesomeness's FINN!
+
+
+[@kaijine ](https://github.com/kaijine) : IS ponytowns awesomeness's kai smith (from ninjago) !
+
+
+[@sea-shantyyy ](https://github.com/sea-shantyyy) : IS ponytowns awesomeness's shedletsky/telamon!
+
+
+[@Lax1e ](https://github.com/Lax1e) : IS ponytowns awesomeness's Marshall (from paw patrol) !
+
+
+[@AcxerSonnellino ](https://github.com/AcxerSonnellino) : IS ponytowns awesomeness's Guest 1337!
+
+
+[@Knuckl3z ](https://github.com/Knuckl3z) : IS ponytowns awesomeness's Vanilla the Rabbit!
+
+
+[@AngelicDeceit ](https://github.com/AngelicDeceit) : IS ponytowns awesomeness's soul bf (from fnf corruption mod) !
+
+
+[@zombdisaster ](https://github.com/zombdisaster) : IS ponytowns awesomeness's tim wright!
+
+
+[@DEADP0ET ](https://github.com/DEADP0ET) : IS ponytowns awesomeness's Yuji Itadori!
+
+
+[@horroryaoi ](https://github.com/horroryaoi) : IS ponytowns awesomeness's wolf keum !
+
+
+[@pixstrs ](https://github.com/pixstrs) : IS ponytowns awesomeness's roier!
+
+
+[@boybabe ](https://github.com/boybabe) : IS ponytowns awesomeness's sword from phighting!
+
+
+[@directoryuser1 ](https://github.com/directoryuser1) : IS ponytowns awesomeness's yi sang!
+
+
+[@ryomxnsukuna ](https://github.com/ryomxnsukuna) : IS ponytowns awesomeness's sukuna!
+
+
+[@DrakoGutz ](https://github.com/DrakoGutz) : IS ponytowns awesomeness's subspace!
+
+
+[@DAMSEL-IN-DISTRESS ](https://github.com/DAMSEL-IN-DISTRESS) : IS ponytowns awesomeness's stephanie (from everymanhybrid)!
+
+
+[@scrsonmythighs ](https://github.com/scrsonmythighs) : IS ponytowns awesomeness's satoru gojo!
+
+
+[@L0VES1CKK ](https://github.com/L0VES1CKK) : IS ponytowns awesomeness's noob! 

@@ -406,3 +406,37 @@ ben drowned !
 [@TheWeightOfYourGhost ](https://github.com/TheWeightOfYourGhost) : IS ponytowns awesomeness's Xiao Chi Cheng (from Revenged Love)
 
 
+[@putmetorestimnotyourstosave ](https://github.com/putmetorestimnotyourstosave) : IS ponytowns awesomeness's simon/convict (from iron lung)
+
+
+[@jeffery2009lol ](https://github.com/jeffery2009lol) : IS ponytowns awesomeness's jeffery (co09)
+
+
+[@ch3shyre ](https://github.com/ch3shyre) : IS ponytowns awesomeness's Leon Kennedy!
+
+
+[@fuminoomi ](https://github.com/fuminoomi) : IS ponytowns awesomeness's beatrix kiddo (from kill bill)!
+
+
+[@bannysuperman ](https://github.com/bannysuperman) : IS ponytowns awesomeness's Clark Kent!
+
+
+[@PURSUITCORE ](https://github.com/PURSUITCORE) : IS ponytowns awesomeness's bendy!
+
+
+[@COUNTRY-HUMANS ](https://github.com/COUNTRY-HUMANS) : IS ponytowns awesomeness's canada!
+
+
+[@circuit-bent ](https://github.com/circuit-bent) : IS ponytowns awesomeness's saturn!
+
+
+[@computerfanaticc ](https://github.com/computerfanaticc) : IS ponytowns awesomeness's HAL-9000!
+
+
+[@Cho707 ](https://github.com/Cho707) : IS ponytowns awesomeness's Towa (Slow Damage)
+
+
+[@reggression ](https://github.com/reggression) : IS ponytowns awesomeness's Bunny Iglesias!
+
+
+[@5aimatsu ](https://github.com/5aimatsu) : IS ponytowns awesomeness's kaede akamatsu! 

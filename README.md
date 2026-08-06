@@ -58,7 +58,7 @@ ben drowned !
 [@01-800-papu ](https://github.com/01-800-papu) : IS ponytowns awesomeness's aldo_geo!
 
 
-[@AngeIogIst ](https://github.com/AngeIogIst) : IS ponytowns awesomeness's 1x!
+[@CherrieJam ](https://github.com/CherrieJam) : IS ponytowns awesomeness's Windblade! 
 
 
 [@sw33tsug4rcookie ](https://github.com/sw33tsug4rcookie) : IS ponytowns awesomeness's ginger the cookie!
@@ -440,3 +440,29 @@ ben drowned !
 
 
 [@5aimatsu ](https://github.com/5aimatsu) : IS ponytowns awesomeness's kaede akamatsu! 
+
+
+[@feelthatdread ](https://github.com/feelthatdread) : IS ponytowns awesomeness's lord x!
+
+
+[@puppytreat ](https://github.com/puppytreat) : IS ponytowns awesomeness's slasher!
+
+
+[@vampireyaoi ](https://github.com/vampireyaoi) : IS ponytowns awesomeness's sunday from (genshin impact)! 
+
+
+[@astrobarrage ](https://github.com/astrobarrage) : IS ponytowns awesomeness's fluixon!
+
+
+[@sspacedoutz ](https://github.com/sspacedoutz) : IS ponytowns awesomeness's Saint (from rainworld)!
+
+
+[@MidnightStargazing ](https://github.com/MidnightStargazing) : IS ponytowns awesomeness's andrew (from bad things)! 
+
+
+[@devimccallion ](https://github.com/devimccallion) : IS ponytowns awesomeness's dave strider!
+
+
+[@Corintheuss ](https://github.com/Corintheuss) : IS ponytowns awesomeness's Artful!
+
+
